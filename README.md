@@ -1,4 +1,4 @@
-![https://p4.wallpaperbetter.com/wallpaper/923/219/759/one-piece-monkey-d-luffy-kaido-gear-fourth-snakeman-wallpaper-preview.jpg]
+![https://p4.wallpaperbetter.com/wallpaper/923/219/759/one-piece-monkey-d-luffy-kaido-gear-fourth-snakeman-wallpaper-preview.jpg)
 
 
 </p>
