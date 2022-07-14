@@ -1,5 +1,5 @@
 <p align="center">
-	<img src="[https://s.kaskus.id/user/avatar/2021/11/24/avatar11130326_1.gif](https://p4.wallpaperbetter.com/wallpaper/923/219/759/one-piece-monkey-d-luffy-kaido-gear-fourth-snakeman-wallpaper-preview.jpg)" style="margin-left: auto;margin-right: auto;display: block;">
+	<img src="https://s.kaskus.id/user/avatar/2021/11/24/avatar11130326_1.gif](https://p4.wallpaperbetter.com/wallpaper/923/219/759/one-piece-monkey-d-luffy-kaido-gear-fourth-snakeman-wallpaper-preview.jpg)" style="margin-left: auto;margin-right: auto;display: block;">
 </p>
 
 </p>
