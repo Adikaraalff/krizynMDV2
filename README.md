@@ -1,5 +1,5 @@
 <p align="center">
-	<img src="[https://p4.wallpaperbetter.com/wallpaper/923/219/759/one-piece-monkey-d-luffy-kaido-gear-fourth-snakeman-wallpaper-preview.jpg]" style="margin-left: auto;margin-right: auto;display: block;">
+	<img src="https://p4.wallpaperbetter.com/wallpaper/923/219/759/one-piece-monkey-d-luffy-kaido-gear-fourth-snakeman-wallpaper-preview.jpg" style="margin-left: auto;margin-right: auto;display: block;">
 </p>
 
 </p>
