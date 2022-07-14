@@ -1,31 +1,31 @@
-![https://telegra.ph/file/23cc916264b9c0755a3a2.jpg](https://telegra.ph/file/283499c33bb1f7970fae1.jpg)
+![https://p4.wallpaperbetter.com/wallpaper/923/219/759/one-piece-monkey-d-luffy-kaido-gear-fourth-snakeman-wallpaper-preview.jpg]
 
 
 </p>
-<h1 align="center">ArullOfc</h1>
+<h1 align="center">Adikaraalff</h1>
 
 >
 >
 >
 </div>
 <p align="center">
-  <a href="https://github.com/Warikrr"><img title="GitHub" src="https://img.shields.io/badge/Github-frostkri.svg?style=for-the-badge&logo=github" /></a>
-  <a href="httts://instagram.com/sahrulwara_____"><img title="Instagram " src="https://img.shields.io/badge/Instagram-Hyzerr.svg?style=for-the-badge&logo=instagram" /></a>
-  <a href="https://youtube.com/channel/UC1ikkqsPvtWuE_QonsET1yg"><img title="Youtube" src="https://img.shields.io/badge/Youtube-Hyzerr.svg?style=for-the-badge&logo=youtube" /></a>
+  <a href="https://github.com/Adikaraalff"><img title="GitHub" src="https://img.shields.io/badge/Github-frostkri.svg?style=for-the-badge&logo=github" /></a>
+  <a href="httts://instagram.com/Adikaraalff"><img title="Instagram " src="https://img.shields.io/badge/Instagram-Hyzerr.svg?style=for-the-badge&logo=instagram" /></a>
+  <a href="https://www.youtube.com/channel/UCqMs3O812J8jOZsPyq0POtA"><img title="Youtube" src="https://img.shields.io/badge/Youtube-Hyzerr.svg?style=for-the-badge&logo=youtube" /></a>
   <h4 align="center">
   <a
-  <a href="https://wa.me/6285822347348">Chat Saya Jika Ingin Menanyakan Sesuatu </a>
+  <a href="https://wa.me/6282180788179">Chat Saya Jika Ingin Menanyakan Sesuatu </a>
 </h4>
 </p>
 
-# DONATE ( DONASI UNTUK ARULLOFC)
+# DONATE ( DONASI UNTUK Adikaraalff)
 > Jika ingin berdonasi untuk 
-> Klik [ SAWERIA ](https://saweria.co/arullOfc) 
+> Klik [ SAWERIA ](https://saweria.co/Adikara) 
 
 # BISA JUGA LEWAT VIA LAIN
-》 DANA  = 085822347348
-》 PULSA = 085822347348,083843192208
-》 OVO   = _
+》 DANA  = 082180788179
+》 PULSA = 082180788179,089527201236
+》 OVO   = 082180788179
 
 # Ambil Session Disini
 
